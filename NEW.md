@@ -1,1 +1,0 @@
-Dog days are over
